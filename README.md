@@ -1,1 +1,2 @@
-just tring to download some music to my rpi zero w
+just tring to download some sh!t to my rpi zero w
+browsing whit half Gig of ram is difficult
